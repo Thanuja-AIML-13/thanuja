@@ -22,7 +22,7 @@ Hello world, this is my profile
 
 - ⚡ Fun fact **I debug better when i talk to my code like it's a teammate**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:on instagram,whatsapp</h3>
 <p align="left">
 </p>
 
